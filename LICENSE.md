@@ -1,4 +1,4 @@
-# 
+# Aseprite for PC | Aseprite for Windows vip Script: smart-objects & automated-actions offers the most advanced Aseprite for PC | Aseprite for Windows script, with smart-objects and
 
 
 
